@@ -1,0 +1,1 @@
+# galeriTakip
